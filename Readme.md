@@ -1,4 +1,4 @@
-# Hero Multi Spam UserBot 
+# Branded Fighter's Multi Spam UserBot 
 
 <p align="center">
   <img src="✓  https://telegra.ph/file/321c5a621bd47ded8ef45.jpg">
